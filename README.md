@@ -1,6 +1,6 @@
 
 #  Hi, I'm El 💫
-&nbsp;ᕬ ᕬ   &nbsp; <br>(„. .„)<br>&nbsp;🍓⊂ ).  &nbsp;Here's a strawberry for you <br><br><br>🧠 BS Computer Engineering with specialization in Data Science (TIP QC, Philippines)<br>🚀 I like making web apps and AI projects<br>👩🏻‍💻 5-year software engineer 
+&nbsp;ᕬ ᕬ   &nbsp; <br>(„. .„)<br>&nbsp;🍓⊂ ).  &nbsp;Here's a strawberry for you <br><br><br>🧠 BS Computer Engineering with specialization in Data Science (TIP QC, Philippines)<br>🚀 I like solving problems<br>👩🏻‍💻 5-year software engineer 
 
 
 ## 🌐 Socials:
